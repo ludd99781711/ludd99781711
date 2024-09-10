@@ -1,7 +1,8 @@
-**Bem vindos ao meu perfil**
+**Bem vindos ao meu perfil**♡
 
-me chamo = Ludmila de oliveira
+ ALUNA= LUDMILA DE OLIVEIRA
+💜
 
-sou aluna do 1 ano B
+ 
 
-***https://media.tenor.com/4PXxgZON9NwAAAAi/cats-miskey-the-peacemaker.gif
+![](miskey-the-https://media.tenor.com/4PXxgZON9NwAAAAi/cats-peacemaker.gif)
